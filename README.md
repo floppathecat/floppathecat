@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FloppaTheCat
+- 👀 I’m interested in Cats
+- 😄 Pronouns: Cat/Floppa
+- ⚡ Fun fact: Cats Cant Eat Chocolate
+- My YT: FloppaTheCatGTAG/FloppaYT
